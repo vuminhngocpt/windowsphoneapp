@@ -8,6 +8,7 @@
  link dự phòng 
  https://goaibox.com/a-sl/7okSxSh3ru
  cách cài đặt xem tại youtube
+ https://youtu.be/Eb7JVSPaKu4?si=RgsSFRIaRl5XOY-Z
 
  tiếng việt (c) VMNIT 2022-2024
  các tập tin có thể cần tài khoản của các dịch vụ lưu trữ để có thể tài về 
