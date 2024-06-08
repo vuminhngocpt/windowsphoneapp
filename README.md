@@ -4,5 +4,5 @@
 
  các tập tin để cài app 
 
- tiếng việt (c) 2024 vuminhngoc 
- VMNIT 2022-2024
+ tiếng việt (c) VMNIT 2022-2024
+ các tập tin có thể cần tài khoản của các dịch vụ lưu trữ để có thể tài về 
