@@ -12,3 +12,4 @@
 
  tiếng việt (c) VMNIT 2022-2024
  các tập tin có thể cần tài khoản của các dịch vụ lưu trữ để có thể tài về 
+và chỉ có thể tài qua app ios hoặc pc android chúng tôi không có lựa chọn lưu trữ nào khác xin cảm ơn
