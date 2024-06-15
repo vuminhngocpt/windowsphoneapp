@@ -4,11 +4,22 @@
 
  các tập tin để cài app 
  link toàn bộ 
- https://goaibox.com/a-sl/7okLA74wOd
+ https://goaibox.com/a-sl/7ueExLraZv
  link dự phòng 
- https://goaibox.com/a-sl/7okSxSh3ru
- cách cài đặt xem tại youtube
- https://youtu.be/Eb7JVSPaKu4?si=RgsSFRIaRl5XOY-Z
+https://goaibox.com/a-sl/7ueG1ZVfYZ
+ vv 
+ https://goaibox.com/a-sl/7ueH2Jzo47
+ https://goaibox.com/a-sl/7ueI3BQ2XF
+ https://goaibox.com/a-sl/7ueIcOGSC4
+ 
+https://goaibox.com/a-sl/7ueJGKscLC
+
+rom 
+https://goaibox.com/a-sl/7ueKTv6zEE
+https://goaibox.com/a-sl/7ueL0chvjT
+https://goaibox.com/a-sl/7ueLffsDvX
+https://goaibox.com/a-sl/7ueM9JMJf5
+
 
  tiếng việt (c) VMNIT 2022-2024
  các tập tin có thể cần tài khoản của các dịch vụ lưu trữ để có thể tài về 
